@@ -1,8 +1,8 @@
 -MOUTHWASHING FANS DNI(unless friends.)
--
+
 -   Hi, I’m Goro!
 
-- 
+  
 Majima Goro Kinnie.
 
 
