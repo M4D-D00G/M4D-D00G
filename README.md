@@ -6,6 +6,7 @@ Majima Goro Kinnie.
 I act and talk like him, if it bothers ya...
 
 WELL DNI! GET OUT! ill hit ya w a bat.
+https://freakofshimano.straw.page/
 
 CURRENTLY AT YAKUZA 4!!
 
