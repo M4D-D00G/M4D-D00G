@@ -1,4 +1,4 @@
--MOUTHWASHING FANS DNI(unless friends.)
+CHECK MY STRAWPAGE!
 
 Hi, I’m Goro!
 Majima Goro Kinnie.
