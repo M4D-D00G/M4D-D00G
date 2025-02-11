@@ -1,5 +1,5 @@
 CHECK MY STRAWPAGE!
-
+https://media.tenor.com/x_YHudVqkWEAAAAM/goro-majima.gif
 Hi, I’m Goro!
 Majima Goro Kinnie.
 
